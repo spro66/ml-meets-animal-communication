@@ -2,6 +2,7 @@
 ## Minutes of hangout - 5th Dec (3pm-6pm) @Dodesheide
 
 **Attendees**: Bhaskar, Hunaid, Johannes, Krupal, Sarah, Saurabh, Shantanu, Rachael
+Minutes taken by Racheal
 
 ### Focuses of discussion: 
 1. interest of individuals --> form subgroups
